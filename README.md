@@ -1,3 +1,3 @@
-- I’m @BronzeAgeRetard
-- Small twitter poster and retard lifter
+- I’m @Squshiee1488(Twatter) & @BronzeAgeRetard (Other places)
+- Small twitter poster and retarded lifter
 - I am not CS person so I'll apperciate all advice or suggestions
